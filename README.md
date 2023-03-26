@@ -1,2 +1,0 @@
-# Novo-Projeto
-Inicial Text
